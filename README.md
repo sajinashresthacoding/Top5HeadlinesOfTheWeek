@@ -1,1 +1,1 @@
-# top-5-healines-of-the-week
+# top-5-headlines-of-the-week
